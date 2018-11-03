@@ -1,2 +1,0 @@
-"# digital-talent" 
-"# digital-talent" 
